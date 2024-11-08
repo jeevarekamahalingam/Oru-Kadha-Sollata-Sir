@@ -44,7 +44,6 @@ Karen says she's made a new friend but Lily (Karen's Mom) doesn't believe her ye
 ![Image description](https://github.com/prasanthsteamA/images/blob/main/13.png)
 
 ### Progression 4: Lily's investigation
-
 Lily gave Karen some sweets in order to calm her down so she could follow her. Lily has a sweet tooth and couldn't resist the temptation. She ate a lot of them on her way to the river.
 
 - Lily gave Karen x sweets
